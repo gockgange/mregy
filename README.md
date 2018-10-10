@@ -1,2 +1,2 @@
 # mregy
-no
+no lol
